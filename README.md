@@ -11,7 +11,7 @@
 
 **- Content Creator**
 
-**- Modder (In a Legal way)**
+**- Modder**
 
 **- Straight**
 
